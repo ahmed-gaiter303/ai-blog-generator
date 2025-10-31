@@ -116,7 +116,7 @@ I write blog posts for businesses using this tool + my own editing.
 
 Hit me up on:
 - [Upwork](https://www.upwork.com/freelancers/~0108af92566249328d)
-- [Fiverr](https://www.fiverr.com/sellers/ahmedgaitr/edit)
+- [Fiverr](https://www.fiverr.com/ahmedgaitr)
 - Email: ahmedekramy303@gmail.com
 
 ---
